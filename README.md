@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on BUMN
 - 📫 How to reach me on Instagram
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: takut kecoa terbang
 
 <!---
 241224/241224 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
